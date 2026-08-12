@@ -1,0 +1,1 @@
+mengapaaaaaa padamuuu ohh kau milik 
